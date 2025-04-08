@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Aman0-hub787
 - 👀 I’m interested in .web analysis, web development,html,css,python coding
 - 🌱 I’m currently learning .Ai&L
-- 💞️ I’m looking to collaborate on .tech company
-- 📫 How to reach me .no. 8894695321
+- 💞️ I’m looking to collaborate with .tech company
+- 📫 How to reach me mobile number 8894695321
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
